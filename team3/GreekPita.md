@@ -1,7 +1,7 @@
-Greek Pita
+Greek Pita (Made by Ivo and Peter)
 ==========
 
-* **Yield**: About 8 pitas (1 per 50g of flour)
+* **Yield**: About 12 pitas (1 per 50g of flour)
 * **Total Time**: 2 hours
 * **Active Time**: 45 min
 
