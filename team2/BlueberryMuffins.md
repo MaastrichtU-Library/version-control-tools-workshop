@@ -16,7 +16,7 @@ Blueberry Muffins
 * 1 cup coconut milk
 * 1 cup unsweetened applesauce
     - Substitute: 2 Tbsp ground flax seed and 3/4 cup of water
-* 4 cups blueberries
+* 4 cups choclate flakes (Dr. Oetker) 
 
 ## Process
 

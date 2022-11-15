@@ -1,4 +1,4 @@
-Bean and Tofu Burritos
+Bean and beef Burritos
 ======================
 
 *Yield*: 12-16 small burritos
@@ -7,7 +7,7 @@ Bean and Tofu Burritos
 
 ## Ingredients
 
-* 2 blocks of tofu
+* 2 blocks of beef
 * 1 head cauliflower (optional)
 * 300 g black beans
 * 5.5 Tbsp southwest seasoning
@@ -19,21 +19,21 @@ Bean and Tofu Burritos
 
 * If using dry beans, put them on the stove and boil them for two hours.
 
-### Tofu
+### beef
 
-* Press the two blocks of tofu and preheat the oven to 425 °F after it is pressed.
-* Cut the tofu along the longest axis into approximately 0.5-inch long slabs.
-* Mix 4 Tbsp of southwest seasoning with oil, and coat each slab of tofu well with the
+* Press the two blocks of beef and preheat the oven to 425 °F after it is pressed.
+* Cut the beef along the longest axis into approximately 0.5-inch long slabs.
+* Mix 4 Tbsp of southwest seasoning with oil, and coat each slab of beef well with the
   oil mixture, adding more oil as necessary to coat all the slabs.
-* Bake the tofu slabs to the desired toughness for 35 to 45 minutes.
-* When the tofu is finished, cut each slab into 6 small strips and put them aside.
+* Bake the beef slabs to the desired toughness for 35 to 45 minutes.
+* When the beef is finished, cut each slab into 6 small strips and put them aside.
 
 #### Cauliflower (Optional)
 
 * If adding cauliflower, break apart a head into small florets.
 * Add some oil and a tablespoon of southwest seasoning to a bowl with
   the cauliflower, mixing until the cauliflower is well coated.
-* Place the cauliflower on a rimmed baking sheet, and bake it with the tofu for
+* Place the cauliflower on a rimmed baking sheet, and bake it with the beef for
   25-30 minutes.
 
 ### Onions
@@ -44,7 +44,7 @@ Bean and Tofu Burritos
 * If desired, add sliced peppers when the onions have significantly reduced in size, frying them
   for at least 10 minutes.
 * 5 minutes before removing the stir-fry, add a teaspoon of the southwest seasoning to the onions
-  with some additional oil. If there is any oil mixture left from the tofu, that may be added instead.
+  with some additional oil. If there is any oil mixture left from the beef, that may be added instead.
 
 ### Beans
 
