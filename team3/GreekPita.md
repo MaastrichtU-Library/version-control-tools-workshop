@@ -1,4 +1,4 @@
-Greek Pita
+Greek Pita (Made by Ivo and Peter)
 ==========
 
 * **Yield**: About 12 pitas (1 per 50g of flour)
