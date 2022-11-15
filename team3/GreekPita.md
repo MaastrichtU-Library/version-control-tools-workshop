@@ -1,17 +1,17 @@
 Greek Pita
 ==========
 
-* **Yield**: About 8 pitas (1 per 50g of flour)
+* **Yield**: About 12 pitas (1 per 50g of flour)
 * **Total Time**: 2 hours
 * **Active Time**: 45 min
 
 ## Ingredients
 
-* 1 cup / 220g / 55% warm water
-* 2 tsp / 6g / 1.5% yeast
-* 2.5 cup / 400g / 100% flour
-* 1 tsp / 5g / 1.25% salt
-* 1 Tbsp / 14g / 2.5% olive oil
+* 1,5 cup / 220g / 55% warm water
+* 3 tsp / 9g / 1.5% yeast
+* 3.75 cup / 600g / 100% flour
+* 1,5 tsp / 7,5g / 1.25% salt
+* 1,4 Tbsp / 21g / 2.5% olive oil
 
 ## Process
 
