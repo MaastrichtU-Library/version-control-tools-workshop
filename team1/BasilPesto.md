@@ -1,7 +1,7 @@
 Kale Basil Pesto
 ================
 
-* **Yield**: Pesto for 1.5 lb of pasta
+* **Yield**: Pesto for 680gr of pasta
 * **Total Time**: 30 minutes
 * **Active Time**: 25 minutes
 
